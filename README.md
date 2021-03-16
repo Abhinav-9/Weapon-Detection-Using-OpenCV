@@ -4,8 +4,7 @@ ABHINAV REDDY CHERLAKOLA
 (abhinavreddy.cherlakola_2022@woxsen.edu.in)
 SAI NITESH GADIRAJU
 (sainitesh.gadiraju_2022@woxsen.edu.in)
-Dr. Hemachandran.K
-(hemachandran.k@woxsen.edu.in)
+
 
 
 ABSTRACT
